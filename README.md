@@ -1,5 +1,7 @@
 # NEW-WORLD-2.0
 just another repository 
+
+
 Once a stray dog while searching for food came to a butcher's shop. There he got a bone with some meat on it. So, he pick it and ran to a safe place to enjoy it at ease.
 
 He ate the bone for a very long time and this made him quite thirsty. So, he went to a river to quench his thirst. It took the bone along, as it was worried that some other dog might not take it away.
